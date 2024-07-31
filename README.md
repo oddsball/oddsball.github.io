@@ -1,2 +1,0 @@
-# oddsball.github.io
-Sandbjerggadeforliget
